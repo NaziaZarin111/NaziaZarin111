@@ -28,4 +28,6 @@ Painter (watercolor & acrylic), devoted reader, book photographer, and staff to 
 
 ## 📫 Find me
 
+📧 **naziazarin101@gmail.com**
+
 [**Portfolio website**](https://naziazarin111.github.io/) · [ORCID 0009-0004-1519-5207](https://orcid.org/0009-0004-1519-5207) · [ResearchGate](https://www.researchgate.net/profile/Nazia-Zarin-2) · [LinkedIn](https://www.linkedin.com/in/nazia-zarin-18886b2b0)
